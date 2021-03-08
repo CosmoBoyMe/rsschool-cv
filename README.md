@@ -1,1 +1,1 @@
-# CosmoBoyMe-rsschool-cv
+https://CosmoBoyMe/rsschool-cv/cv
